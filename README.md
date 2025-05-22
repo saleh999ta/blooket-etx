@@ -1,4 +1,7 @@
 # blooket-etx
+
+READ THIS!!!!  Some links in this will not work on school chrombooks because they are blocked and some will if you use the links on a NOT SCHOOL OWNED Computer,laptop,tablet,Other if you have your school email on YOUR Computer change the email to work.
+
 Hello I will be hacking so many sites they are available in schools and out of schools specifically blooket.
 
 READ THIS!!!!
